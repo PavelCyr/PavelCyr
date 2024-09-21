@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @PavelCyr
+- 🌱 I’m currently learning game developement in UN / UNITY
+- 💞️ I’m looking to collaborate on: website developement
+- 📫 How to reach me: message me on IG
+- 😄 Pronouns: he/him
